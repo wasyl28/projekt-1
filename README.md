@@ -1,1 +1,1 @@
-wasyl to parowa
+"Wiesz co jest w wiezieniu za bycie strazakiem" 
